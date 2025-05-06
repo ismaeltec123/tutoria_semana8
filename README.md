@@ -15,5 +15,5 @@
 
 ---
 
-💡 *Los conflictos no son el problema. El problema es cómo los enfrentamos.* 🌟 Este ejercicio me ayudó a identificar mis reacciones y crear una estrategia concreta para mejorar.
+
 
